@@ -1,1 +1,1 @@
-# [fanjiahh.github.io](https://hoo.be/yinghua)
+# [fanjiahh.github.io](https://hoo.be/yingshidaquan)
